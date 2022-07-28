@@ -1,0 +1,5 @@
+- 👋 Oi eu sou @joao 
+- 👀 estou interessado em estudar
+- 🌱 atualmente estou aprendendo a progamar jogos 
+- 💞️ Procuro colaborar com o github
+- 📫 dizendo, baby shark
